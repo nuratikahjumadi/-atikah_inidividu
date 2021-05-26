@@ -1,0 +1,1 @@
+# -atikah_inidividu
